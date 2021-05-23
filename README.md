@@ -26,6 +26,19 @@
 মনে রাখা দরকার এটি সিজফায়ার। ডিকশনারিতে এর প্রধান অর্থ হচ্ছে - সাময়িক বিরতি। প্যালেস্টিনিয়ান ও গাজার ক্লান্ত মানুষরা বিশ্রাম করতে পারে। বিশ্ব মানবতাকে জেগে থাকতে হবে।
 
 -------------------------------------------
+
+আমি গত কয়েকটি স্ট্যাটাসে পয়েন্ট আউট করেছি যে ইসরায়েলের এই লেটেস্ট অ্যাটাকে যত ধ্বংস ও মানুষ হত্যা হোলো তাতে জো বাইডেনের ভূমিকাকে অস্বীকার করা বা ছোট করে দেখা যাবে না। মার্কিন প্রেসিডেন্টরা ইসরায়েলের সব অ্যাসল্টে ভূমিকা রেখে চলেছে এবং তাদের ওয়ার ক্রিমিনাল হিসেবে আইডেন্টিফাই করতে হবে আমাদের। 
+২০১৪ সালে ইসরায়েলের গাজায় চালানো অপারেশন 'প্রটেক্টিভ এজ' - যা এবারের অ্যাসল্টের চেয়েও মারাত্মক ও ধ্বংসাত্বক ছিলো - সে ব্যাপারে ২০১৫ সালে ইসরায়েলি-প্যালেস্টাইন ইস্যু এক্সপার্ট প্রফেসর ড. নরম্যান ফিংকেলস্টাইন বলছেন: 
+"It was not too much of a surprise that United States gave Israel blanket support. Every day some Obama official would come out and say: Israel has the right to defend itself - as if that were the issue. Even organizations like Human Rights Watch or Amnesty International in the third week of July were saying that Israel is targeting civilians and civilian infrastructure. Those are war crimes under international law. And when Obama or one of his associates was asked, he just kept saying: Israel has the right to defend itself. 
+The fact of the matter is Obama was the enabler-in-chief of the latest massacre in Gaza. The reason why it is not hard to figure out is the simple fact that Israel, from day it started the latest assault, had wall to wall support of the Congress - hundred senators signed  a statement supporting Israel - even people who are so-called liberals like Bernie Sanders of Vermont and Elizabeth Warren. Warren, who supposedly is a leftist candidate, was actually justifying Israel's attacks on hospitals." 
+পুরো লেকচারটির লিঙ্ক প্রথম কমেন্টে।
+
+--আমি গত কয়েকটি স্ট্যাটাসে পয়েন্ট আউট করেছি যে ইসরায়েলের এই লেটেস্ট অ্যাটাকে যত ধ্বংস ও মানুষ হত্যা হোলো তাতে জো বাইডেনের ভূমিকাকে অস্বীকার করা বা ছোট করে দেখা যাবে না। মার্কিন প্রেসিডেন্টরা ইসরায়েলের সব অ্যাসল্টে ভূমিকা রেখে চলেছে এবং তাদের ওয়ার ক্রিমিনাল হিসেবে আইডেন্টিফাই করতে হবে আমাদের। 
+২০১৪ সালে ইসরায়েলের গাজায় চালানো অপারেশন 'প্রটেক্টিভ এজ' - যা এবারের অ্যাসল্টের চেয়েও মারাত্মক ও ধ্বংসাত্বক ছিলো - সে ব্যাপারে ২০১৫ সালে ইসরায়েলি-প্যালেস্টাইন ইস্যু এক্সপার্ট প্রফেসর ড. নরম্যান ফিংকেলস্টাইন বলছেন: 
+"It was not too much of a surprise that United States gave Israel blanket support. Every day some Obama official would come out and say: Israel has the right to defend itself - as if that were the issue. Even organizations like Human Rights Watch or Amnesty International in the third week of July were saying that Israel is targeting civilians and civilian infrastructure. Those are war crimes under international law. And when Obama or one of his associates was asked, he just kept saying: Israel has the right to defend itself. 
+The fact of the matter is Obama was the enabler-in-chief of the latest massacre in Gaza. The reason why it is not hard to figure out is the simple fact that Israel, from day it started the latest assault, had wall to wall support of the Congress - hundred senators signed  a statement supporting Israel - even people who are so-called liberals like Bernie Sanders of Vermont and Elizabeth Warren. Warren, who supposedly is a leftist candidate, was actually justifying Israel's attacks on hospitals." 
+পুরো লেকচারটির লিঙ্ক প্রথম কমেন্টে।
+-----------------------------------------
 If you want to know who were the aggressor and who were the oppressed then check who cheered during the war and who rejoiced after the ceasefire.
 
 -------------------------------------------
